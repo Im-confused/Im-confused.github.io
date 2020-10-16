@@ -17,3 +17,8 @@ iwi ein Gott oder so wsl.
 Is groß und Stark
 Kann iwi mit m Schwert rumhauen
 Legende
+
+
+## Epical Quote:
+
+I`ll be Back! -Hee Hee Man
