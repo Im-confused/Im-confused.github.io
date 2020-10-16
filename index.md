@@ -25,5 +25,5 @@ iwi ein Gott oder so wsl.
 -Hee Hee Man
 
 
-![GitHub Logo](C:\Users\Dominik\Pictures\Saved Pictures\Hee_Hee.png)
+![GitHub Logo](https://de.web.img3.acsta.net/newsv7/20/01/27/09/35/4723522.jpg)
 
