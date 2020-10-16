@@ -14,11 +14,15 @@ iwi ein Gott oder so wsl.
 
 ## Character Traits:
 
-Is groß und Stark
-Kann iwi mit m Schwert rumhauen
-Legende
-
+* Is groß und Stark
+* Kann iwi mit m Schwert rumhauen
+* Legende
+* Krank Stronk
 
 ## Epical Quote:
 
-I`ll be Back! -Hee Hee Man
+> I`ll be Back! 
+-Hee Hee Man
+
+
+<img src="https://www.pinterest.com/pin/410812797254525232/"/>
